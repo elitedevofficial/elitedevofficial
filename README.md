@@ -30,7 +30,7 @@ Ready to elevate your digital presence? Connect with ELiTE DEVELOPMENT and let's
 
 ### 📞 Get in Touch
 
-
+- LinkedIn: [https://www.linkedin.com/in/elite-development-9b24392b8?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app](https://cdn.discordapp.com/attachments/979052583559774228/1213866261163937832/elite.png?ex=65f7080d&is=65e4930d&hm=d4662e7afd974cc1cdc889df152566f6585d3a17368a35e83430da045f21dc57&)
 - Email: elitedevelopmentofficial14@gmail.com
 
 Let's build something extraordinary. ELiTE DEVELOPMENT - Crafting Digital Excellence.
